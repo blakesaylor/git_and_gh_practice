@@ -1,0 +1,1 @@
+My favorite vacation I have ever been on was when I went to Vernet les Bains in France. One of my close friends was working on his PhD in London, so we decided to take a vacation close to him. Vernet les Bains was an absolutely gorgeous area with tons of sunshine, hikes around every corner, beautiful  architecture, and incredible history.
